@@ -1,1 +1,1 @@
-Video record result : https://drive.google.com/drive/folders/1zUu8qwCEKmA_iHx1AgiFnULcnO2tV5FN?hl=vi
+Video record result : https://drive.google.com/file/d/11iaM1NiNGbFUBUGBECfoDvbOk9MuWvIh/view?usp=sharing
